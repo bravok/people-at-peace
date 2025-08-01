@@ -57,7 +57,11 @@ When your group grows too large, divide it into two equal halves. This is the wa
 # Two Tales of Two Peoples
 
 Everything you need to know can be found inside of you and 
-in Your relationships with Your Loved-Ones and Friends.
+in Your relationships with Your Self, Your Loved-Ones and Friends.
 
+This is true for all Others too. Their relationships with theirselves, their friends, theur loved-ones,
+are the basis for peace in their own lives.
 
+It is then, across all people, that we are all able to find peace.
+ 
 
