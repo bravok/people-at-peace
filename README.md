@@ -80,9 +80,19 @@ Others have their own Selves, Friends and Loved-Ones. Expect and insist that the
 
 ## The Third Guidance
 
-The number of people you regard as Friends and Loved Ones matters! 
+The number of people you regard as Friends and Loved Ones matters! Pay attention to the size of your group.
 
-In Need, In Order, and In Excess
+### When there are less that 40 amoung You, your Friends, and Loved Ones
+
+Too few, and you will feel anxiety or depression. You will solicit Others for attention when it's not warranted. You can be exploited by Others; used like a tool.
+
+### When there are more that 60 amoung You, your Friends, and Loved Ones
+
+Too many, and you will feel anxious about your place in the group; your worth to your Friends and Loved-Ones. Your Self esteem may suffer. And most importantly, Others will try to join the group to exploit it. They will take, but not give, and will not be called out for it in the manner that Friends and Loved-Ones should. Rifts will form. In fact, the group may fracture on its own! 
+
+### When there are between 40 and 60 people
+
+It is ideal to have between 40 and 60 people you call Friends and Loved Ones, along with your Self. Count every soul - the children, and the elders.
 
 ## The Fourth Guidance
 
