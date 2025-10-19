@@ -96,7 +96,21 @@ It is ideal to have between 40 and 60 people you call Friends and Loved Ones, al
 
 ## The Fourth Guidance
 
+### Like Mindedness
+
+Choose your Friends and Loved-Ones based on like mindedness. Other reasons aren't nearly as compelling. How you look at the world, face challenges, take action, regard your Self - like-mindedness helps ensure that the time you spend together will be positive.
+
+### Location
+
+Strive to keep your Friends and Loved-Ones nearby. We are still of this world. It matters that we rely on people that are physically nearby. Unfortunately, long distance relationships suffer and are not nearly as strong. Rifts form fast between people that cannot spend time with one another, or the larger group.
+
+### Dividing When In Excess
+
 When your group grows too large, divide it into two equal halves. This is the way of life. The healthy cell divides into two equal halves. The cancer fails to divide or does not divide equally. Cancer is deadly over time.
+
+This is a compelling reason to keep your group small and focus on existing relationships over building new ones. It can be painful to divide a group you have grown accustom to spending your time with.
+
+Go with the half that you care about the most.
 
 # Two Tales of Two Peoples
 
